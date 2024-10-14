@@ -1,10 +1,11 @@
-- 👋 Hi, I’m @Shrimpo
-- 👀 I’m interested in reading, writing, hating on people and listening to music
-- 🌱 I’m currently learning coding, and Fck off if ur here to hate
-- 💞️ I’m looking to collaborate on idk??
-- 📫 How to reach me my tiktok lil_cry_baby
-- 😄 Pronouns: she/her cause ill never be HIM
-- ⚡ Fun fact: I slept with ur dad thats why he isnt coming home with the milk
+Age: a minor but perfectly fine alone ^^
+Call me Shrimpo Or Mochi
+favorite game: Dandy's world, Evade
+pronuns: she/her
+fav song: pretty when i cry, i bet on losing dogs, Oh Klahoma, charlies inferno, just take my wallet, tree house, butch 4 butch
+fav food: meat shawarma!!
+country: Egypt
+*twearks and runs away*
 
 <!---
 Shrimpo-lover/Shrimpo-lover is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
